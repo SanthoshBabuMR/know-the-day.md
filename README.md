@@ -25,6 +25,7 @@
     - Right to Constitutional Remedies, 
 - [Long Ans]
 </details>
-
+- <img src="./assets/republic-india.jpg" width="300">
+- <img src="./assets/india-constitution-book.jpg" width="300">
 
 
