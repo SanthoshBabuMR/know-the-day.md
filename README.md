@@ -4,6 +4,7 @@
 - This Constitution was drafted widely by Dr.Ambedkar and Came into effect on 26 Jan 1950, making India a Republic Country, where the Supreme power is held by the people and their elected representatives rather than a monarch or dictator
 <details>
 <summary>details</summary>
+  
 - The Constitution replaced the British colonial Government of India Act (1935) as the country's governing text and thus, turning the nation into a newly formed republic.
   - Republic: a state in which supreme power is held by the people and their elected representatives, and which has an elected or nominated president rather than a monarch.
 - Dr BR Ambedkar was the chairman of the committee to draft the constitution and is widely considered to be the architect of the Constitution of India.
