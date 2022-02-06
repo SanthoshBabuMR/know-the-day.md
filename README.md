@@ -1,3 +1,9 @@
+## 06 Feb
+- Thenmozhi & Sivaprakash Marriage on 06 Feb 2022
+
+## 05 Feb
+- Thenmozhi & Sivaprakash Reception on 05 Feb 2022
+
 ## 26 Jan
 - Marks the date on which the **Constitution of India came into effect on 26, January 1950**
 - The Constitution of India is the supreme law in India, which establishes fundamental rights enjoyed by all citizens of this country, regardless of their political beliefs
